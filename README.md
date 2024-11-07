@@ -1,10 +1,5 @@
-swwd
-da
-sada
-s
-d
-s
 ss
 s
 s
 da
+
