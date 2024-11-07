@@ -1,13 +1,1 @@
-dad
-dadad
-dada
-dadwawd
-addadawd
-da
 d
-d
-dadawda
-dd
-dad
-dadadda
-asd
